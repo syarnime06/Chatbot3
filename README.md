@@ -10,7 +10,7 @@ For make a purchase:
 Open everyday from 10am to 10pm
 
 Website Link:
-(https://gamma.app/docs/Devilgram-Your-Gateway-to-Demonic-Delights-y1hdqxvk65ukd2f?mode=doc)
+(https://devilgram-delights-ewe9s0v.gamma.site/)
 
 Location:
 Street - Jalan Tinju 13/50, Seksyen 13, 40100 Shah Alam
